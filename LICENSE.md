@@ -1,4 +1,4 @@
-
+custom Script for king legacy is the best king legacy Script, featuring private server access and silent aim. Safe and powerful for all your needs.
 
 
 
